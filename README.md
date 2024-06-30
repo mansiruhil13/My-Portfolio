@@ -15,4 +15,25 @@ I'm a Computer Science Engineering Student.I'm always open to learning new thing
 
 # Skills
 
-<img src="python.png">
+• Python
+
+• C Programming 
+
+# Connect Me
+
+• https://github.com/mansiruhil13
+
+• https://www.linkedin.com/in/mansi-ruhil-7a00a0228/
+
+• https://www.instagram.com/mansiiii._05/
+
+• https://x.com/imMansiiii/
+
+• https://mail.google.com/mansiruhil99@gmail.com/
+
+# Download CV
+
+• https://drive.google.com/file/d/1mx59HuoMiwOQrZkuITKdQV6lOaeXtl-k/view?usp=drive_link
+
+
+
