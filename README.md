@@ -22,13 +22,20 @@ I'm a Computer Science Engineering Student.I'm always open to learning new thing
 # Connect Me
 
 •Github:
+
 https://github.com/mansiruhil13
 
-• https://www.linkedin.com/in/mansi-ruhil-7a00a0228/
+•Linkedin:
 
-• https://www.instagram.com/mansiiii._05/
+https://www.linkedin.com/in/mansi-ruhil-7a00a0228/
 
-• https://x.com/imMansiiii/
+•Instagram:
+
+https://www.instagram.com/mansiiii._05/
+
+•Twitter:
+
+https://x.com/imMansiiii/
 
 # Download CV
 
