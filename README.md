@@ -29,8 +29,6 @@ I'm a Computer Science Engineering Student.I'm always open to learning new thing
 
 • https://x.com/imMansiiii/
 
-• https://mail.google.com/mansiruhil99@gmail.com/
-
 # Download CV
 
 • https://drive.google.com/file/d/1mx59HuoMiwOQrZkuITKdQV6lOaeXtl-k/view?usp=drive_link
